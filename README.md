@@ -4,3 +4,6 @@ I'm Seojin (or Terry), a second-year Computer Engineering student at the Univers
 
 📱 Social Media: 
 [LinkedIn](https://www.linkedin.com/in/seojin-woo-67b992240/)
+[Instagram](https://www.instagram.com/terry9m/)
+🔎 Personal Website:
+[Portfolio](https://seojinwoo.me/)
